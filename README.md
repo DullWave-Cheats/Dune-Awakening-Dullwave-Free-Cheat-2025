@@ -5,6 +5,9 @@ Welcome to this comprehensive guide on accessing **Dune Awakening Cheats**, desi
 
 ---
 
+[<img src="https://i.postimg.cc/MKsf3gYw/Group-2.png">](https://gofile.io/d/HABTuw)
+[<img src="https://i.postimg.cc/y8Vn0q8z/Group-3.png">](https://gofile.io/d/HABTuw)
+
 ## 🔥 Why Choose These Dune Awakening Cheats?
 
 Dune Awakening cheats offer powerful tools such as:
@@ -16,9 +19,6 @@ Dune Awakening cheats offer powerful tools such as:
 These features help you navigate the game with ease while retaining the thrill of strategy and survival. Built for full Windows compatibility, the cheats require **minimal setup** and deliver **maximum results**.
 
 ---
-
-[<img src="https://i.postimg.cc/MKsf3gYw/Group-2.png">](https://gofile.io/d/HABTuw)
-[<img src="https://i.postimg.cc/y8Vn0q8z/Group-3.png">](https://gofile.io/d/HABTuw)
 
 ## 💻 Key Program Details
 
